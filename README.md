@@ -1,5 +1,5 @@
 # 💫 About Me:
-CSE&DS student | Learning to code, Building Projects, and Growing Every.
+CSE&DS student | Learning to code, Building Projects, and Growing Every Day.
 
 
 ## 🌐 Socials:
